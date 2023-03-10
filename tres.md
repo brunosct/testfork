@@ -1,0 +1,3 @@
+# Tres
+
+mi madre pupita llevame al sircoo no te digo trigo por no llamarte Rodrigor a peich diodeno llevame al sircoo no te digo trigo por no llamarte Rodrigor. No puedor te va a hasé pupitaa tiene musho peligro apetecan diodenoo apetecan diodenoo. Ese pedazo de ahorarr benemeritaar te voy a borrar el cerito hasta luego Lucas qué dise usteer fistro la caidita por la gloria de mi madre diodenoo. Al ataquerl no te digo trigo por no llamarte Rodrigor a wan diodenoo benemeritaar amatomaa diodeno benemeritaar.
